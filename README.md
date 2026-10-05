@@ -1,1 +1,1 @@
-this chnages is made by peeson 2
+this chnages is made by person 2
